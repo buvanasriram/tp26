@@ -1,2 +1,2 @@
 # RED VELVET CAKE
-[GitHub](http://github.com)
+[Ingredients](Ingredients.md)
