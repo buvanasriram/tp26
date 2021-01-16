@@ -1,3 +1,3 @@
 # RED VELVET CAKE
-[Ingredients](ingredients.md)\n
+[Ingredients](ingredients.md)
 [Recipe](recipe.md)
