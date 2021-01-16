@@ -2,4 +2,4 @@
 ## [Ingredients](ingredients.md)
 
 ## [Recipe](recipe.md)
-![](redvelvet.jpg)
+![Yummy!](redvelvet.jpg)
