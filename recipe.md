@@ -1,12 +1,12 @@
 How To Make Red Velvet Cake step by step.......
 
-step 1. First preheat your oven to 350 F (176 C). Next let's make our cake batter. Start by creaming your butter and your white granulated or caster sugar together in a large bowl. Use a hand mixer or stand mixer to do this.
+1. First preheat your oven to 350 F (176 C). Next let's make our cake batter. Start by creaming your butter and your white granulated or caster sugar together in a large bowl. Use a hand mixer or stand mixer to do this.
 
-step 2. Now we add in our eggs one at a time. So drop one egg in, mix, once that egg is completely incorporated do the other egg. Make sure to scrape the sides of the bowl as well with a spatula.
+2. Now we add in our eggs one at a time. So drop one egg in, mix, once that egg is completely incorporated do the other egg. Make sure to scrape the sides of the bowl as well with a spatula.
 
-step 3. Now we add in our cocoa powder. It is a good idea to run it through some kind of a sifter. Cocoa powder tends to get a bit lumpy. Then mix again and scrape the sides as needed. Throughout this whole process we don't want to over mix, just until things are incorporated. If we mix too much we will add too much air into the batter which can cause air pockets in our cake.
+3. Now we add in our cocoa powder. It is a good idea to run it through some kind of a sifter. Cocoa powder tends to get a bit lumpy. Then mix again and scrape the sides as needed. Throughout this whole process we don't want to over mix, just until things are incorporated. If we mix too much we will add too much air into the batter which can cause air pockets in our cake.
 
-step 4. Now add in your vanilla extract to your buttermilk as well as your white vinegar. If you don't have buttermilk you can make some by taking just shy of one cup of regular milk and adding one tablespoon of lemon juice or vinegar and then let it sit out for about 10 to 15 minutes. Stir in the vinegar and vanilla extract until combined.
+4. Now add in your vanilla extract to your buttermilk as well as your white vinegar. If you don't have buttermilk you can make some by taking just shy of one cup of regular milk and adding one tablespoon of lemon juice or vinegar and then let it sit out for about 10 to 15 minutes. Stir in the vinegar and vanilla extract until combined.
 
 step 5. Now we add in our oil to the buttermilk mixture. Next add in about 2 to 2 and 1/2 Tablespoons of red food coloring liquid. Then stir, until the mixture is a nice red color. Set that mixture aside for now.
 
